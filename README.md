@@ -1,0 +1,1 @@
+This is my schedule document for semester project 1. 24.11.2019. Alexandra Eline Pettersen
